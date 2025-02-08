@@ -1,1 +1,2 @@
 aku gant
+awa wa
