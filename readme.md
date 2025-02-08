@@ -1,1 +1,1 @@
-aku ganteng
+aku gant
